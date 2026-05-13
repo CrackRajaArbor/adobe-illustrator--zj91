@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Illustrator for macOS script with professional Script for Adobe Illustrator for macOS - layer styles and plugin support. Featuring layer styles and plugin
 
 
 
